@@ -1,1 +1,1 @@
-It will be my portfolio website. inshaAllah.i will pou my portfolio here.
+It will be my portfolio website. inshaAllah.i will put my portfolio here.
